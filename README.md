@@ -1,2 +1,1 @@
-# rogue-planetz-privacy-policy
-# rogue-planetz-privacy-policy
+# Rogue Planetz Privacy Policy
